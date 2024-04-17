@@ -1,4 +1,4 @@
-# Hi there 👋 Am Adaora Janet Ibeagwa #
+# Hi there 👋 I'm Adaora Janet Ibeagwa #
 ## I'm a Public Administrator turn Banker, Now am going into Data Analytic
 - I'm currently a Student of Dahel Data Techies
 
